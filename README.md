@@ -1,4 +1,4 @@
-# Exodia game 
+# Exodia  
 
 THE GAME WILL BE AVAILABLE SOON
 
